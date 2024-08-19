@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @djll-bnz
 - 👀 I’m interested in cyber security
 - 🌱 I’m currently learning bac pro ciel
-- 📫 How to reach me instagram: bnz_djll
+- 📫 reach me on instagram: bnz_djll
 - 😄 Pronouns: he him
 - ⚡ Fun fact:i have 17 years old
 
